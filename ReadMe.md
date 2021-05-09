@@ -1,5 +1,6 @@
 # Hi
-
-# status
-
-# ktoś z zewnątrz dodał tutaj zmianę
+# a
+# a
+# a
+# a
+# a
